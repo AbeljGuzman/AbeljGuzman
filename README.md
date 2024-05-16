@@ -16,7 +16,7 @@
 
 💬 Ask me about **Python, c++**
 
-⚡ Fun fact **Model Kits are priced by the plastic not the character**
+⚡ Fun fact **Model Kits are priced by the plastic not the brand**
 
  </div>
  
